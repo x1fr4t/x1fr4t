@@ -1,1 +1,1 @@
-https://matrix.to/#/!bWMJDqbOFPgexOGCdA:matrix.org
+[Parla](https://app.element.io/#/room/!bWMJDqbOFPgexOGCdA:matrix.org)
